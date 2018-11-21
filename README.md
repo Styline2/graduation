@@ -19,3 +19,8 @@ Song: AI you can call me AI, this is a loop
 
 To exit AI You can call me AI but why not also Heidi
 
+<raw-data-domains-host-cache-analytivs Tools-dataminig Tools-databases-etl-cloud-security Tools-parallelism-multi platforms-browsers web-acass Auth in demand domain' name-web developpements fading>
+
+<raw-radio-signal-call-back system&milestone around§webdesign§%15§tautology-source-tracking-cookies-integrated in databases BtoC-45-62-J300-dynamic-opensource and owner softwares grow up on underground vision>
+cat  home domain
+Display  emeraude
