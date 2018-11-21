@@ -14,3 +14,8 @@ Local database-cache-applications server- cloud-cache- dedicated servers-final c
 
 Host Stockage local-domain's name settings- big data settings-cloud settings-fai-customers query-security-web-developpements-advertising companies-div-partnerships-singletons>
 
+Config htlm written with markdown preference/linux name config markdown that's meaning evevrything goes well
+Song: AI you can call me AI, this is a loop
+
+To exit AI You can call me AI but why not also Heidi
+
