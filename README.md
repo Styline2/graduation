@@ -15,11 +15,10 @@ Local database-cache-applications server- cloud-cache- dedicated servers-final c
 Host Stockage local-domain's name settings- big data settings-cloud settings-fai-customers query-security-web-developpements-advertising companies-div-partnerships-singletons>
 
 Config htlm written with markdown preference/linux name config markdown that's meaning evevrything goes well
-Song: AI you can call me AI, this is a loop
 
-To exit AI You can call me AI but why not also Heidi
 
-<raw-data-domains-host-cache-analytivs Tools-dataminig Tools-databases-etl-cloud-security Tools-parallelism-multi platforms-browsers web-acass Auth in demand domain' name-web developpements fading>
+
+<raw-data-domains-host-cache-analytics Tools-dataminig Tools-databases-etl-cloud-security Tools-parallelism-multi platforms-browsers web-acass Auth in demand domain' name-web developpements fading>
 
 <raw-radio-signal-call-back system&milestone around§webdesign§%15§tautology-source-tracking-cookies-integrated in databases BtoC-45-62-J300-dynamic-opensource and owner softwares grow up on underground vision>
 cat  home domain
